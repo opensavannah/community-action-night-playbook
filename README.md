@@ -18,7 +18,7 @@
 ---
 
 ## A.) PRE-EVENT PREPARATIONS FOR COMMUNITY ACTION NIGHTS (CANs!)  👩🏽‍🚒
- 📅* REGULARLY-SCHEDULED **CANs** TAKE PLACE EVERY 1st AND 3rd WEDNESDAYS OF EACH MONTH AT 6:30 p.m.* 📅🥇&🥉
+ 📅* REGULARLY-SCHEDULED **CANs** TAKE PLACE EVERY 2nd AND 4th WEDNESDAYS OF EACH MONTH AT 6:30 p.m.* 📅🥇&🥉
 
 ### On the day of each CAN, the designated event host will follow roughly the following schedule of tasks:
 
